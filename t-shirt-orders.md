@@ -1,4 +1,4 @@
-# Soon-to-come (or not) t-shirts orders
+# Soon-to-come t-shirts orders
 ## *I used to know Agnès Crépet before she was a Java Champ'*
 
 - @k33g_org : 1, XXXL
