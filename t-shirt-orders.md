@@ -4,6 +4,7 @@
 - @k33g_org : 1, XXXL
 - @bootis : 1, girly.
 - @Audrey_Neveu : 1, pimped with "And she's my friend".
+- @xbourguignon : L
 
 ## *Agnès Crépet is the mother of my child*
 
