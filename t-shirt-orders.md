@@ -5,6 +5,7 @@
 - @bootis : 1, girly.
 - @Audrey_Neveu : 1, pimped with "And she's my friend".
 - @AlexisHassler : 1, XL, because he's much slimmer than @k33g_org
+- @xbourguignon : 1L and 3 for my kids: 9y, 6y, 3y
 
 ## *Agnès Crépet is the mother of my child*
 
