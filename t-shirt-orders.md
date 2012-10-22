@@ -14,4 +14,5 @@
 ## *- You know Agnès Crépet? - So what? Agnès Crépet knows me!*
 
 - @jnizet: 1, XL, not black & white
+- @jponge: 1, XL, but I'd prefer that variant: "You know Agnès Crépet? - So what? Agnès Crépet knows me motherfuckers!"
 
